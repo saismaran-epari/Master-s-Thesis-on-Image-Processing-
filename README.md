@@ -1,1 +1,1 @@
-# Master-s-Thesis-on-Image-Processing-
+# Masters-Thesis-on-Image-Processing-
